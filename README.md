@@ -4,4 +4,3 @@
 
 ## conflict resolution
 
-added by another user
