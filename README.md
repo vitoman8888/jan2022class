@@ -1,9 +1,8 @@
 # jan2022class
 
-🍥 🍥🍥🍥🍥🍥🍥🍥🍥🍥🍥🍥🍥🍥🍥🍥
+🍥 🍥🍥🍥🍥🍥🍥
+fishcakes YUCKKY!!!!!!!!
 
-fishcakes yum
-
-## conflict resolution
+## conflict revolutions
 
 rrtiyhkhkhykjh
