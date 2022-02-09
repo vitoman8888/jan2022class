@@ -6,4 +6,4 @@ fishcakes yum
 
 ## conflict resolution
 
-rrtiyhkhkhykjh
+Make this reAL TEXT
